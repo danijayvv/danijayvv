@@ -1,4 +1,7 @@
-## Hi there 👋
+## Greetings 👋
+I'm Dani, also known as danijayvv, danisttdances, or iM1GHTB3DANI.
+
+Interested in contacting me? Feel free to email me at ```contact@dxnvxv.studio```.
 
 <!--
 **danijayvv/danijayvv** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
